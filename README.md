@@ -1,0 +1,1 @@
+# analiza-rynku-data-it
